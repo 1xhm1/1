@@ -1,6 +1,6 @@
 # 小红帽最新下载地址（2022年7月21日更新）
 ### 点击以下链接进入下载页：
-yen6.club
+[yen6.club] (yen6.club)/b
 ysk5.club
 yeg6.club
 主播版下载地址 gnm8.club
